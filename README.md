@@ -1,7 +1,7 @@
 ### 🦇 Hi toshi here!
 
 - this is mostly for PT 
-- Toshi , Ghia , Cornpy
+- Toshi/haza , Ghia , Cornpy
 - **He/they** + neos | trans ftm | questioning 
 - you can ask for my discord if were friends 
 
