@@ -41,6 +41,7 @@
 - mlp
 - paswg
 - peepys/ literally anything by itemlabel
+- running man animation
 
 ### 💫 ME!
 - toshikazu hazamda [jjba] (fakes/doubles dni. unless im already friends with you)
@@ -56,6 +57,7 @@
 - haida [aggretsuko]
 - rainbow dash [mlp]
 - pinki pie [mlp]
+- gai [running man animation]
 
 ### 🎬 Comforts
 - fenneko [aggretsuko]
