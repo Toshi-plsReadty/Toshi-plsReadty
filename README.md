@@ -27,6 +27,7 @@
 - against neopronouns or xenogenders
 - proshipper
 - racist
+- zoos & maps (yall are gross af.)
 - if you disrespect and touch ppl with TD/TT
 - under 14
 
