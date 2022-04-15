@@ -54,6 +54,7 @@
 - vinegar doppio [jjba]
 - squalo [jjba]
 - ciccolata [jjba]
+- rohan [jjba]
 - retsuko [aggretsuko]
 - haida [aggretsuko]
 - rainbow dash [mlp]
