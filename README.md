@@ -24,8 +24,8 @@
 
 ### 💢 DNI.
 - homophobic, biphobic, transphobic, lesbophobic, panphobic + etc.
-- against neopronouns or xenogenders
-- proshipper
+- against neopronouns & xenogenders
+- proshippers
 - racist
 - zoos & maps (yall are gross af.)
 - if you disrespect and touch ppl with TD/TT
