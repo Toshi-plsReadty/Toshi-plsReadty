@@ -2,7 +2,7 @@
 
 - this is mostly for PT 
 - Toshi/haza , Ghia , Cornpy
-- **He/they** + neos | trans ftm | questioning 
+- **He/they** + neos | trans ftm | questioning | **Minor** | 🇵🇭 
 - you can ask for my discord if were friends 
 
 ### ⛓ BYI!
@@ -22,6 +22,10 @@
 - pls use tone tags around me
 - i like ranting abt my interest alot
 
+### 💌 Pls int/srs
+- la squadra stans 👑 ily guys/p
+- 
+
 ### 💢 DNI.
 - homophobic, biphobic, transphobic, lesbophobic, panphobic + etc.
 - against neopronouns & xenogenders
@@ -34,9 +38,9 @@
 ### 🦷 Interests
 - art
 - music 
+- jjba
 - cats
 - acnh
-- jjba
 - aggrstsuko (comf show)
 - ponytown
 - mlp
@@ -68,5 +72,6 @@
 - koichi hirose [jjba]
 - pietro [animal crossing]
 - bruno bucciarati [jjba]
+- melone [jjba]
 
 ### 📎 THX FOR TAKING THE TIME TO READ THIS!!
