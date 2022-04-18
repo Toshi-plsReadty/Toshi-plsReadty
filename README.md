@@ -24,8 +24,9 @@
 
 ### 💌 Pls int/srs (i need more friends/hj)
 - la squadra stans 👑 ily guys/p
-- irls/kin/cos - *intert any lasquadra member* , josuke,okuyasu,koichi,mikitaka,doppio,leaky eye luca,hayato,kosaku
+- irls/kin/cos - *intert any lasquadra member* , josuke,okuyasu,keicho,koichi,mikitaka,doppio,leaky eye luca,hayato,kosaku,secco
 - if you like/love making and talking abt ocs
+- i you like art in general
 
 ### 💢 DNI.
 - homophobic, biphobic, transphobic, lesbophobic, panphobic + etc.
