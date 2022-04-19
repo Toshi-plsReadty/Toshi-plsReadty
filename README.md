@@ -4,6 +4,7 @@
 - Toshi/haza , Ghia , Cornpy
 - **He/they** + neos | trans ftm | asexual | **Minor** | filipino
 - you can ask for my discord if were friends 
+- i have a mild touch discomfort, and it makes me extremely uncomfortable when strangers randomly sit close to me for a long time.
 
 ### ⛓ BYI!
 - im mostly at the jojo areas and docks most of the time w my friend so feel free to int w me! 
