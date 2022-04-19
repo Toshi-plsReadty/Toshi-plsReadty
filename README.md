@@ -16,6 +16,7 @@
 - im afk half of the time and kinda shy so pls be patient when you talk to me
 - crowns and kisses are fine but do **not** sit or cuddle with me unless i gave you permission.
 - also no im not **that** toshi im a complety different person.
+- im really bad at comforting ppl bcs im scared i might say something wrong or mean so pls dont vent to me (even if you are my friend)
 - i dont just randomly accept friend request, try talking to me a bit first
 - pls dont copy my skins, you can take inspo but ask first.
 - i use "girl", "bro", "man" in a gender neutral way
@@ -80,4 +81,4 @@
 - secco [jjba]
 
 ### 📎 THX FOR TAKING THE TIME TO READ THIS!!
-- [click me](https://youtu.be/dQw4w9WgXcQ)
+- [click me!](https://youtu.be/dQw4w9WgXcQ)
