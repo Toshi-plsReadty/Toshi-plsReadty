@@ -2,7 +2,7 @@
 
 - this is mostly for PT 
 - Toshi/haza , Ghia , Cornpy
-- **He/they** + neos | trans ftm | questioning | **Minor** | filipino
+- **He/they** + neos | trans ftm | asexual | **Minor** | filipino
 - you can ask for my discord if were friends 
 
 ### ⛓ BYI!
@@ -72,10 +72,12 @@
 - any la squadra member tbh
 - fenneko [aggretsuko]
 - tadano [aggretsuko]
+- giorno giovanna [jjba]
 - mikitaka hazekura [jjba]
 - koichi hirose [jjba]
 - pietro [animal crossing]
 - bruno bucciarati [jjba]
+- secco [jjba]
 
 ### 📎 THX FOR TAKING THE TIME TO READ THIS!!
 - [click me](https://youtu.be/dQw4w9WgXcQ)
