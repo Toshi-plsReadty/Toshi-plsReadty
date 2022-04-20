@@ -58,6 +58,7 @@
 - toshikazu hazamda [jjba] (fakes/doubles dni. unless im already friends with you)
 - ghiaccio [jjba] (i dont mind kinnies & cosplays so feel free to int if you want)
 - cornpy [itemlabel] (fakes/doubles dni.)
+- clampy [itemlabel] (fakes/doubles dni.)
 - fugo [jjba] (kinnies/cos feel free int i dont mind!)
 
 ### 💉 Kins
