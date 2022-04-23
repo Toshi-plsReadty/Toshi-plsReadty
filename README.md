@@ -41,7 +41,7 @@
 - under 14
 
 ### 🦷 Interests
-- art
+- **art**
 - music 
 - jjba
 - cats
