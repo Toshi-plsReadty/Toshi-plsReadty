@@ -38,7 +38,7 @@
 - zoos & maps (yall are gross af.)
 - if you disrespect and touch ppl with TD/TT
 - if you ship: fugonara & giomis (romantically btw)
-- under 14
+- under 13 & 18+ yrs old
 
 ### 🦷 Interests
 - **art**
