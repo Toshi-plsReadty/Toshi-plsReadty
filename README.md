@@ -84,7 +84,7 @@
 - bruno bucciarati [jjba]
 - secco [jjba]
 
-### 🎶 Links!!
+### 🎶 Links!! / Some of my socials
 - [spotify](https://open.spotify.com/user/31ltsj6j3a5xqf622igf2ml5vkv4)
 - [twitter](https://twitter.com/Soy_Toshi) 
 - [pinterest](https://www.pinterest.ph/S0ym1k/_saved/)
