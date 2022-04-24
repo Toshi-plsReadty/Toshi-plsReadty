@@ -10,6 +10,7 @@
 - im mostly at the jojo areas and docks most of the time w my friend so feel free to int w me! 
 - im very childish and make ALOT of toilet humor jokes
 - i use caps and swear alot
+- i make kms/kys jokes so pls tell me if your uncomfortable with those
 - im slow at typing and tend to have a hard time putting words together so pls be patient with me
 - do no interact with me if my name has "dni", crowns are ok tho 👍
 - if you shit talk abt kins and comforts ill probably just hide you, i dont like starting drama with randos.
@@ -22,7 +23,7 @@
 - pls dont copy my skins, you can take inspo but ask first.
 - i use "girl", "bro", "man" in a gender neutral way
 - pls use tone tags around me
-- i like ranting abt my interest alot
+- i dont really rp that much, but if im in the mood ill do my best^^
 
 ### 💌 Pls int/srs (i need more friends/hj)
 - la squadra stans 👑 ily guys/p
@@ -82,6 +83,11 @@
 - pietro [animal crossing]
 - bruno bucciarati [jjba]
 - secco [jjba]
+
+### 🎶 Links!!
+- [spotify](https://open.spotify.com/user/31ltsj6j3a5xqf622igf2ml5vkv4)
+- [twitter](https://twitter.com/Soy_Toshi) 
+- [pinterest](https://www.pinterest.ph/S0ym1k/_saved/)
 
 ### 📎 THX FOR TAKING THE TIME TO READ THIS!!
 - [click me!](https://youtu.be/dQw4w9WgXcQ)
