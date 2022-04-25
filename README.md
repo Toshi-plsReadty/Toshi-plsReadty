@@ -5,6 +5,7 @@
 - **He/they** + neos | trans ftm | asexual | **Minor** (dont do anything weird.)
 - you can ask for my discord if were friends 
 - i have a mild touch discomfort, and it makes me extremely uncomfortable when strangers randomly sit close to me for a long time.
+- avaradge part 4 & 5 enjoyer!
 
 ### ⛓ BYI!
 - im mostly at the jojo areas and docks most of the time w my friend so feel free to int w me! 
@@ -12,6 +13,7 @@
 - i use caps and swear alot
 - i make kms/kys jokes so pls tell me if your uncomfortable with those
 - im slow at typing and tend to have a hard time putting words together so pls be patient with me
+- i sometimes go nonverbal, mainly bcs i dont wanna talk that day or something happend
 - do no interact with me if my name has "dni", crowns are ok tho 👍
 - **do not do/say anything sexual towards me, it makes me very uncomfortable, also no idc if its juts a "joke".**
 - if you shit talk abt kins and comforts ill probably just hide you, i dont like starting drama with randos.
