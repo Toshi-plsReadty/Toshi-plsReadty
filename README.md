@@ -2,7 +2,7 @@
 
 - this is mostly for PT 
 - Toshi/haza , Ghia , Cornpy
-- **He/they** + neos | trans ftm | asexual | **Minor** | filipino
+- **He/they** + neos | trans ftm | asexual | **Minor** (dont do anything weird.)
 - you can ask for my discord if were friends 
 - i have a mild touch discomfort, and it makes me extremely uncomfortable when strangers randomly sit close to me for a long time.
 
@@ -13,6 +13,7 @@
 - i make kms/kys jokes so pls tell me if your uncomfortable with those
 - im slow at typing and tend to have a hard time putting words together so pls be patient with me
 - do no interact with me if my name has "dni", crowns are ok tho 👍
+- **do not do/say anything sexual towards me, it makes me very uncomfortable, also no idc if its juts a "joke".**
 - if you shit talk abt kins and comforts ill probably just hide you, i dont like starting drama with randos.
 - if you dont like hazamada (aka me) feel free to hide and ignore me ^^ , again i dont like starting drama
 - im afk half of the time and kinda shy so pls be patient when you talk to me
@@ -24,6 +25,7 @@
 - i use "girl", "bro", "man" in a gender neutral way
 - pls use tone tags around me
 - i dont really rp that much, but if im in the mood ill do my best^^
+
 
 ### 💌 Pls int/srs (i need more friends/hj)
 - la squadra stans 👑 ily guys/p
