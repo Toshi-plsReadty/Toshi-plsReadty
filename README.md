@@ -31,7 +31,7 @@
 
 ### 💌 Pls int/srs (i need more friends/hj)
 - la squadra stans 👑 ily guys/p
-- irls/kin/cos - *intert any lasquadra member* , josuke,okuyasu,keicho,koichi,mikitaka,doppio,leaky eye luca,hayato,kosaku,secco
+- irls/kin/cos - *intert any lasquadra member* , josuke,okuyasu,keicho,koichi,mikitaka,doppio,leaky eye luca,hayato,kosaku,secco, giorno
 - if you like/love making and talking abt ocs
 - i you like art in general
 
@@ -42,7 +42,7 @@
 - racist
 - zoos & maps (yall are gross af.)
 - if you disrespect and touch ppl with TD/TT
-- if you ship: fugonara & giomis (romantically btw)
+- if you ship: fugonara & giomis. 
 - under 13 & 18+ yrs old
 
 ### 🦷 Interests
