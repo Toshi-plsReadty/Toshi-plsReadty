@@ -13,7 +13,7 @@
 - i use caps and swear alot
 - i make kms/kys jokes so pls tell me if your uncomfortable with those
 - im slow at typing and tend to have a hard time putting words together so pls be patient with me
-- i sometimes go nonverbal, mainly bcs i dont wanna talk that day or something happend
+- i am semi verbal, so sometimes i dont feel like takling/typing
 - do no interact with me if my name has "dni", crowns are ok tho 👍
 - **do not do/say anything sexual towards me, it makes me very uncomfortable, also no idc if its juts a "joke".**
 - if you shit talk abt kins and comforts ill probably just hide you, i dont like starting drama with randos.
