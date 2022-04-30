@@ -60,7 +60,7 @@
 - fnf (i love the mods and songs sorry,,,)
 
 ### 💫 ME!
-- toshikazu hazamda [jjba] (fakes/doubles dni. unless im already friends with you)
+- toshikazu hazamda [jjba] (fakes/doubles dni. unless im already friends with you, cosplays are ok tho!)
 - ghiaccio [jjba] (i dont mind kinnies & cosplays so feel free to int if you want)
 - cornpy [itemlabel] (fakes/doubles dni.)
 - clampy [itemlabel] (fakes/doubles dni.)
