@@ -8,19 +8,20 @@
 - avaradge part 4 & 5 enjoyer!
 
 ### ⛓ BYI!
-- im mostly at the jojo areas and docks most of the time w my friend so feel free to int w me! 
+- im mostly at the jojo areas and docks most of the time w my friends so feel free to int w me! 
 - im very childish and make ALOT of toilet humor jokes
 - i use caps and swear alot
 - i make kms/kys jokes so pls tell me if your uncomfortable with those
-- im slow at typing and tend to have a hard time putting words together so pls be patient with me
+- im slow at typing and tend to have a hard time putting words together so pls be patient with me + i cant spell
 - i am semi verbal, so sometimes i dont feel like takling/typing
-- do no interact with me if my name has "dni", crowns are ok tho 👍
+- i love using ^^,!!!,^_^,:3,:D (idk what theyre called)
+- do no interact with me if my name has "dni" (unless your my friend), crowns are ok tho 👍
 - **do not do/say anything sexual towards me, it makes me very uncomfortable, also no idc if its juts a "joke".**
 - if you shit talk abt kins and comforts ill probably just hide you, i dont like starting drama with randos.
 - if you dont like hazamada (aka me) feel free to hide and ignore me ^^ , again i dont like starting drama
 - im afk half of the time and kinda shy so pls be patient when you talk to me
 - crowns and kisses are fine but do **not** sit or cuddle with me unless i gave you permission.
-- also no im not **that** toshi im a complety different person.
+- also no im not **that** toshi im a complety different person. (pls dont attack me lmao)
 - im really bad at comforting ppl bcs im scared i might say something wrong or mean so pls dont vent to me (even if you are my friend)
 - i dont just randomly accept friend request, try talking to me a bit first
 - pls dont copy my skins, you can take inspo but ask first.
