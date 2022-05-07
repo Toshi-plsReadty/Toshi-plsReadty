@@ -35,6 +35,7 @@
 - irls/kin/cos - *intert any lasquadra member* , josuke,okuyasu,keicho,koichi,mikitaka,doppio,leaky eye luca,hayato,kosaku,secco, giorno
 - if you like/love making and talking abt ocs
 - i you like art in general
+- sourcemates!
 
 ### 💢 DNI.
 - homophobic, biphobic, transphobic, lesbophobic, panphobic + etc.
@@ -52,22 +53,25 @@
 - jjba
 - cats
 - acnh
+- epithet erased
 - aggrstsuko (comf show)
 - ponytown
 - mlp
 - paswg
 - peepys/ literally anything by itemlabel
 - running man animation
-- fnf (i love the mods and songs sorry,,,)
 
 ### 💫 ME!
 - toshikazu hazamda [jjba] (fakes/doubles dni. unless im already friends with you, cosplays are ok tho!)
-- ghiaccio [jjba] (i dont mind kinnies & cosplays so feel free to int if you want)
+- ghiaccio [jjba] (i dont mind doubles & kinnies so feel free to int if you want)
 - cornpy [itemlabel] (fakes/doubles dni.)
 - clampy [itemlabel] (fakes/doubles dni.)
-- fugo [jjba] (kinnies/cos feel free int i dont mind!)
+- fugo [jjba] (doubles/kinnies/cos feel free int i dont mind!)
+- dr sylvester ashling / sylvie [epithet erased] (doubles pls dni)
+- giovvani potage [epithet erased] (i dont mind doubles and kinnies at all!)
 
 ### 💉 Kins
+- molly [epithet erased]
 - vinegar doppio [jjba]
 - squalo [jjba]
 - ciccolata [jjba]
@@ -76,7 +80,7 @@
 - haida [aggretsuko]
 - rainbow dash [mlp]
 - pinki pie [mlp]
-- gai [running man animation]
+- 
 
 ### 🎬 Comforts
 - any la squadra member tbh
