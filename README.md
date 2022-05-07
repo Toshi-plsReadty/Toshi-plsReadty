@@ -1,7 +1,7 @@
 ### 🦇 Hi toshi here!
 
 - this is mostly for PT 
-- Toshi/haza , Ghia , Cornpy
+- Toshi/haza , Ghia , Cornpy, slyvie
 - **He/they** + neos | trans ftm | asexual | **Minor** (dont do anything weird.)
 - you can ask for my discord if were friends 
 - i have a mild touch discomfort, and it makes me extremely uncomfortable when strangers randomly sit close to me for a long time.
