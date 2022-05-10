@@ -44,7 +44,7 @@
 - racist
 - zoos & maps (yall are gross af.)
 - if you disrespect and touch ppl with TD/TT
-- if you ship: fugonara , giomis & rohaza (idfc get out.)
+- if you ship: fugonara(in a sexual way if that makes sense) , giomis & rohaza (idfc get out.)
 - under 13 & 18+ yrs old
 
 ### 🦷 Interests
