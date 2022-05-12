@@ -32,7 +32,7 @@
 
 ### 💌 Pls int/srs (i need more friends/hj)
 - la squadra stans 👑 ily guys/p
-- irls/kin/cos - *intert any lasquadra member* , josuke,okuyasu,keicho,koichi,mikitaka,doppio,leaky eye luca,hayato,kosaku,secco, giorno
+- irls/kin/cos - *intert any lasquadra member*,okuyasu,keicho,koichi,mikitaka,doppio,leaky eye luca,hayato,kosaku,secco, giorno
 - if you like/love making and talking abt ocs
 - i you like art in general
 - sourcemates!
