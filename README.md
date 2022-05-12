@@ -1,8 +1,8 @@
 ### 🦇 Hi toshi here!
 
 - this is mostly for PT 
-- Toshi/haza , Ghia , Cornpy, slyvie
-- **He/they** + neos | trans ftm | asexual | **Minor** (dont do anything weird.)
+- Toshi/haza , Ghia , Cornpy, slyvie , gio/giovanni
+- **He/they** + neos | trans & demigirl | asexual | **Minor** (dont do anything weird.)
 - you can ask for my discord if were friends 
 - i have a mild touch discomfort, and it makes me extremely uncomfortable when strangers randomly sit close to me for a long time.
 - avaradge part 4 & 5 enjoyer!
@@ -16,7 +16,7 @@
 - i am semi verbal, so sometimes i dont feel like takling/typing
 - i love using ^^,!!!,^_^,:3,:D (idk what theyre called)
 - do no interact with me if my name has "dni" (unless your my friend), crowns are ok tho 👍
-- **do not do/say anything sexual towards me, it makes me very uncomfortable, also no idc if its juts a "joke".**
+- **do not do/say anything sexual towards me, it makes me very uncomfortable, also no idc if its juts a "joke".** 
 - if you shit talk abt kins and comforts ill probably just hide you, i dont like starting drama with randos.
 - if you dont like hazamada (aka me) feel free to hide and ignore me ^^ , again i dont like starting drama
 - im afk half of the time and kinda shy so pls be patient when you talk to me
