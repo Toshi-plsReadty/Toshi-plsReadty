@@ -62,7 +62,7 @@
 - running man animation
 
 ### 💫 ME!
-- toshikazu hazamda [jjba] (fakes/doubles dni. unless im already friends with you, cosplays are ok tho!)
+- toshikazu hazamda [jjba] (fakes/doubles dni. unless im already friends with you, cosplays & kinnies are ok tho!)
 - ghiaccio [jjba] (i dont mind doubles & kinnies so feel free to int if you want)
 - cornpy [itemlabel] (fakes/doubles dni.)
 - clampy [itemlabel] (fakes/doubles dni.)
