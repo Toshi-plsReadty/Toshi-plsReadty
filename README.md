@@ -94,6 +94,7 @@
 - secco [jjba]
 
 ### 🎶 Links!! / Some of my socials
+- [pronouns page](https://en.pronouns.page/@Toshiiii)
 - [spotify](https://open.spotify.com/user/31ltsj6j3a5xqf622igf2ml5vkv4)
 - [twitter](https://twitter.com/Soy_Toshi) 
 - [pinterest](https://www.pinterest.ph/S0ym1k/_saved/)
