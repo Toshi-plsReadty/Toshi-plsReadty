@@ -27,7 +27,7 @@
 - pls dont copy my skins, you can take inspo but ask first.
 - i use "girl", "bro", "man" in a gender neutral way
 - pls use tone tags around me
-- i dont really rp that much, but if im in the mood ill do my best^^
+- i dont really rp that much, but if im in the mood ill do my best^^ (i mosty do crack rps tho, i dont take anything srsly)
 
 
 ### 💌 Pls int/srs (i need more friends/hj)
@@ -54,12 +54,16 @@
 - cats
 - acnh
 - epithet erased
-- aggrstsuko (comf show)
+- aggrstsuko
+- inside job
+- craig of the creek 
 - ponytown
 - mlp
 - paswg
+- sanrio 
 - peepys/ literally anything by itemlabel
 - running man animation
+- crob/crk (i havent been in the fandom for months but i still like it so)
 
 ### 💫 ME!
 - toshikazu hazamda [jjba] (fakes/doubles dni. unless im already friends with you, cosplays & kinnies are ok tho!)
@@ -70,28 +74,8 @@
 - dr sylvester ashling / sylvie [epithet erased] (doubles pls dni)
 - giovvani potage [epithet erased] (i dont mind doubles and kinnies at all!)
 
-### 💉 Kins
-- molly [epithet erased]
-- vinegar doppio [jjba]
-- squalo [jjba]
-- ciccolata [jjba]
-- rohan [jjba]
-- retsuko [aggretsuko]
-- haida [aggretsuko]
-- rainbow dash [mlp]
-- pinki pie [mlp]
-- 
-
-### 🎬 Comforts
-- any la squadra member tbh
-- fenneko [aggretsuko]
-- tadano [aggretsuko]
-- giorno giovanna [jjba]
-- mikitaka hazekura [jjba]
-- koichi hirose [jjba]
-- pietro [animal crossing]
-- bruno bucciarati [jjba]
-- secco [jjba]
+### 💉 Kins & Comforts !!!
+- [click here 4 full list!](https://www.pinterest.ph/S0ym1k/me-kins-%2B-comforts/)
 
 ### 🎶 Links!! / Some of my socials
 - [pronouns page](https://en.pronouns.page/@Toshiiii)
