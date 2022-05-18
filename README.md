@@ -2,7 +2,7 @@
 
 - this is mostly for PT 
 - Toshi/haza , Ghia , Cornpy, slyvie , gio/giovanni
-- **He/they** + neos | trans & demigirl | asexual | **Minor** (dont do anything weird.)
+- **He/they** + neos | trans & demigirl | asexual 
 - you can ask for my discord if were friends 
 - i have a mild touch discomfort, and it makes me extremely uncomfortable when strangers randomly sit close to me for a long time.
 - avaradge part 4 & 5 enjoyer!
