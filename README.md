@@ -8,14 +8,16 @@
 - avaradge part 4 & 5 enjoyer!
 
 ### ⛓ BYI!
-- im mostly at the jojo areas and docks most of the time w my friends so feel free to int w me! 
-- im very childish and make ALOT of toilet humor jokes
+- im mostly at the jojo areas and docks most of the time w my friends so feel free to int w me!
+- im not a very talkative person so I apologize if I come off as awkward or go silent randomly
+- im very childish and make ALOT of toilet humor & amongus jokes
 - i use caps and swear alot
 - i make kms/kys jokes so pls tell me if your uncomfortable with those
 - im slow at typing and tend to have a hard time putting words together so pls be patient with me + i cant spell
 - i am semi verbal, so sometimes i dont feel like takling/typing
 - i love using ^^,!!!,^_^,:3,:D (idk what theyre called)
 - do no interact with me if my name has "dni" (unless your my friend), crowns are ok tho 👍
+- **pls dont boop me repeatedly. it makes me uncomfortable and its very annoying! (unless your my friend or i gave you permission to do so.)**
 - **do not do/say anything sexual towards me, it makes me very uncomfortable, also no idc if its juts a "joke".** 
 - if you shit talk abt kins and comforts ill probably just hide you, i dont like starting drama with randos.
 - if you dont like hazamada (aka me) feel free to hide and ignore me ^^ , again i dont like starting drama
