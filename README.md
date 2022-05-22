@@ -44,8 +44,9 @@
 - against neopronouns & xenogenders
 - proshippers
 - racist
+- dsmp fans & skins
 - zoos & maps (yall are gross af.)
-- if you disrespect and touch ppl with TD/TT
+- if you disrespect and/or touch ppl with TD/TT
 - if you ship: fugonara(in a sexual way if that makes sense) , giomis & rohaza (idfc get out.)
 - under 13 & 18+ yrs old
 
