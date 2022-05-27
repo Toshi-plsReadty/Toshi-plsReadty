@@ -26,8 +26,8 @@
 - also no im not **that** toshi im a complety different person. (pls dont attack me lmao)
 - im really bad at comforting ppl bcs im scared i might say something wrong or mean so pls dont vent to me (even if you are my friend)
 - i dont just randomly accept friend request, try talking to me a bit first
-- pls dont copy my skins, you can take inspo but ask first.
-- i use "girl", "bro", "man" in a gender neutral way
+- **pls dont copy my skins. (you can take inspo but ask first.)**
+- i use "girl", "bro", "man" , "dude" in a gender neutral way
 - pls use tone tags around me
 - i dont really rp that much, but if im in the mood ill do my best^^ (i mosty do crack rps tho, i dont take anything srsly)
 
