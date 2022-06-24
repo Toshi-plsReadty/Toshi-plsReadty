@@ -69,13 +69,13 @@
 - crob/crk (i havent been in the fandom for months but i still like it so)
 
 ### 💫 ME!
-- toshikazu hazamda [jjba] (fakes/doubles dni. unless im already friends with you, cosplays & kinnies are ok tho!)
-- ghiaccio [jjba] (i dont mind doubles & kinnies so feel free to int if you want)
+- toshikazu hazamda [jjba] (fakes/doubles dni. unless im already friends with you, cosplays & kinnies are ok ig)
+- ghiaccio [jjba] (doubles dni ty)
 - cornpy [itemlabel] (fakes/doubles dni.)
 - clampy [itemlabel] (fakes/doubles dni.)
-- fugo [jjba] (doubles/kinnies/cos feel free int i dont mind!)
+- fugo [jjba] (doubles dni)
 - dr sylvester ashling / sylvie [epithet erased] (doubles pls dni)
-- giovvani potage [epithet erased] (i dont mind doubles and kinnies at all!)
+- giovvani potage [epithet erased] (i dont mind doubles and kinnies 👍)
 
 ### 💉 Kins & Comforts !!!
 - [click here 4 full list!](https://www.pinterest.ph/S0ym1k/me-kins-%2B-comforts/)
